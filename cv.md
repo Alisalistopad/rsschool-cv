@@ -26,7 +26,7 @@ I worked as a teacher in colledge for 1 year
 
 **7.**
 =
-BSTU, Organic Technology Faculty, 2018-2022,
+BSTU, Organic Technology Faculty, engineer, 2018-2022,
 
 BSTU, Organic Technology Faculty magistracy, 2022-2023
 
